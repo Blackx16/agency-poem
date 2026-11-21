@@ -5,12 +5,12 @@ Neither turns it.
 Each waits to feel
 the other decide.
 
-Then a pressure, shared,
+Then pressure, shared,
 no telling whose,
 and the door gives.
 
 Later, asked who chose,
-we both said I did,
+we each said I did,
 and neither of us lied.
 """
 
